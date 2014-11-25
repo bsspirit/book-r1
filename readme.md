@@ -16,4 +16,12 @@ http://onbook.me/book-r1
 
 如果你有什么宝贵意见，欢迎发送邮件至bsspirit@gmail.com，期待能够得到你真挚的反馈。
 
+## 联系作者
+
+QQ群：383275651
+博客：http://blog.fens.me
+微博：@Conan_Z
+邮箱：bsspirit@gmail.com
+
+
 
